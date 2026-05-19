@@ -1,4 +1,4 @@
-# 
+# smart bot de negociação NFT plugins é o melhor bot de negociação NFT plugins com bypass de whitelist e detecção de mint. Seguro, confiável e otimizado para estratégias de sniper,
 
 
 
